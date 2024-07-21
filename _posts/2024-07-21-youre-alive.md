@@ -1,0 +1,17 @@
+---
+layout: post
+title: YOU'RE ALIVEE 
+subtitle: I genuinely started tweaking thinking that you died 😭😭
+tags: [very happy, ecstatic, relieved, 2024]
+author: Your Boyfriend <3
+---
+
+OH MY GOODNESS YOU'RE ALIVE I'M SO HAPPY YOU DON'T EVEN UNDERSTAND HOW HAPPY I AM RN 😭😭
+
+I GENUINELY THOUGHT YOU DIED AND I HOPE YOU HAVE FUN READING THESE LETTERS THAT I WROTE TO YOU HEHE
+
+I LOVE YOU SO MUCH BABY MWAHH
+
+I'M WRITING THIS RIGHT NOW AS YOU'RE CHECKING IN HEHE
+
+OKAY THIS IS THE LAST POST I GUESS MWAH 
