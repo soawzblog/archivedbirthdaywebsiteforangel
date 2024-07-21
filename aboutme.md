@@ -18,12 +18,4 @@ I don't even know where to start because everything you do either comes so natur
 - Understanding (I love how you can understand and empathize with whatever emotion that I am trying to convey, as well as understanding the nuances of how life works)
 - Telepathic (I dont even know how this is possible, but im gonna assume its quantum physics)
 
-What else do you need?
-
-### Things I would change about you or I guess, things we can work on together <3.
-- Eat more (You need input of energy to get anything done)
-- Sleep more (Your body needs to heal itself and does that most at night, also good for brain health)
-- Workout more (Good cardiovascular health and overall fit-ness and immense benefits.)
-- Saying no to people (tbh you have been working on this really hard so I am very proud of you abt this)
-
-At the end of the day, and months and future years that we will spend together, I will always be proud of you no matter what, as long as it's not stupid. MWAH
+There is not a single thing that I would change about you, and you might be thinking about your little quirks, but at the end of the day, and months and future years that we will spend together, I will always support you no matter what, as long as it's not terribly stupid. MWAH
