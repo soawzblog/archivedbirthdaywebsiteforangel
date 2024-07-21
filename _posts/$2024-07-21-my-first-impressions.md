@@ -2,14 +2,28 @@
 layout: post
 title: My First Impressions
 subtitle: My thoughts when I first met you
-tags: [first impressions, test]
+tags: [first impressions, 2023-2024]
 author: Your Boyfriend <3
 ---
 
-Under what circumstances should we step off a path? When is it essential that we finish what we start? If I bought a bag of peanuts and had an allergic reaction, no one would fault me if I threw it out. If I ended a relationship with a woman who hit me, no one would say that I had a commitment problem. But if I walk away from a seemingly secure route because my soul has other ideas, I am a flake?
+I don't even know where to begin but I remember around the end of 2023 probably around December, we first started talking and it was on and off.
 
-The truth is that no one else can definitively know the path we are here to walk. It’s tempting to listen—many of us long for the omnipotent other—but unless they are genuine psychic intuitives, they can’t know. All others can know is their own truth, and if they’ve actually done the work to excavate it, they will have the good sense to know that they cannot genuinely know anyone else’s. Only soul knows the path it is here to walk. Since you are the only one living in your temple, only you can know its scriptures and interpretive structure.
+Your username was chronic pessimist and you had different words posted on your profile and so I guess my very very first impression was that you love complicated words.
 
-At the heart of the struggle are two very different ideas of success—survival-driven and soul-driven. For survivalists, success is security, pragmatism, power over others. Success is the absence of material suffering, the nourishing of the soul be damned. It is an odd and ironic thing that most of the material power in our world often resides in the hands of younger souls. Still working in the egoic and material realms, they love the sensations of power and focus most of their energy on accumulation. Older souls tend not to be as materially driven. They have already played the worldly game in previous lives and they search for more subtle shades of meaning in this one—authentication rather than accumulation. They are often ignored by the culture at large, although they really are the truest warriors.
+Which is funny now that I think about it because You have a hard time struggling to understand certain words LOL, but in any case I liked the idea that you appreciated certain words of literature because I like to speak as non-colloquially as possible.
 
-A soulful notion of success rests on the actualization of our innate image. Success is simply the completion of a soul step, however unsightly it may be. We have finished what we started when the lesson is learned. What a fear-based culture calls a wonderful opportunity may be fruitless and misguided for the soul. Staying in a passionless relationship may satisfy our need for comfort, but it may stifle the soul. Becoming a famous lawyer is only worthwhile if the soul demands it. It is an essential failure if you are called to be a monastic this time around. If you need to explore and abandon ten careers in order to stretch your soul toward its innate image, then so be it. Flake it till you make it.
+After that we had our very first conversation about mint chocolate, and this was right after I went to a Christmas party where I was given mint chocolate to take home and I absolutely hated it. I made a post about it on my story and notes I believe and you replied agreeing with me. I guess we bonded over the fact that we mutually hated mint chocolate LMAO
+
+It gets a little foggy around this time because I'm not sure if we just continued to talk, or if you asked if we could talk more but either way we continued to talk. We then started sending and messages over pictures, and I was just taking ceiling photos and you sent me a picture of you and I was absolutely awestruck.
+
+You were and still are literally drop dead gorgeous, beautiful and very attractive. I remember telling you this in voice call, but I love talking about it because I remember very clearly, thinking to myself that I could never even entertain the concept of being in a relationship with you. You were quite literally out of my league.
+
+After this moment in time, we started talking more and I started being flirty and your reciprocated my energy so well and that was extremely insanely attractive as well. I then remember starting to get jealous whenever you mention other guys even if you were casually talking about them or to them in a group chat or dms, and I started calling you, mine.
+
+I regret not asking you out as soon as possible because we were basically in some sort of situationship for a month before I realized and we both made it official LOL
+
+I honestly don't know where you have been my entire life because there's nothing more than I want than for us to grow up together and grow old together. It's pretty difficult having that kind of wish, considering all the events that are happening in today's world. I do believe that everything will work for the best for the both of us, and especially you because you deserve nothing but good and happiness and everything amazing.
+
+I want nothing more than for me to hug you and give you a big kiss and protect you forever 🩷
+
+I love you babie, MWAH 
