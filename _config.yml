@@ -10,10 +10,10 @@
 ############################
 
 # Name of website
-title: My website
+title: Happy 19th Birthday Angel <3
 
 # Your name to show in the footer
-author: Some Person
+author: From: Your Boyfriend
 
 ###############################################
 # --- List of links in the navigation bar --- #
@@ -51,13 +51,13 @@ round-avatar: true
 # Uncomment the links you want to show and add your information to each one.
 social-network-links:
   email: "someone@example.com"
-  rss: true  # remove this line if you don't want to show an RSS link at the bottom
-  facebook: deanattali
-  github: daattali
-  twitter: daattali
-  patreon: DeanAttali
+  rss: false # remove this line if you don't want to show an RSS link at the bottom
+  facebook: 
+  github: 
+  twitter: 
+  patreon: 
   youtube: "@daattali"
-  whatsapp: 15551212
+  whatsapp: 
 #  medium: yourname
 #  reddit: yourname
 #  linkedin: daattali
@@ -100,7 +100,7 @@ share-links-active:
 
 # How to display the link to your website in the footer
 # Remove this if you don't want a link in the footer
-url-pretty: "MyWebsite.com"
+url-pretty: "happybirthdayangel.love"
 
 # Add the website title to the title of every page
 title-on-all-pages: true
